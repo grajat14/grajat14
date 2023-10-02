@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/rajat-gupta-4a26b420a](https://www.linkedin.com/in/rajat-gupta-4a26b420a)
 
-- 📫 How to reach me **rajatgupta2460@gmail.com  grajat578@gmail.com**
+- 📫 How to reach me **rajatgupta2460@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
